@@ -1,4 +1,4 @@
- 👋🏽 Hey, I'm Ian — aka Reflex2003
+ 👋🏽 Hey, I'm Ian — aka Reflex
 
 > I don't just use technology. I like finding out what happens when I push it a little further. 😂
 
